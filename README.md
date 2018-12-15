@@ -15,7 +15,9 @@ Feel free to contact me [here](mailto:sazit@live.com).
 Profiles
 
 [LinkedIn](https://linkedin.com/in/sazit/).
+
 [Western Sydney](https://www.westernsydney.edu.au/staff_profiles/uws_profiles/mr_sajit_gopal_gurubacharya).
+
 [ResearchGate](https://www.researchgate.net/profile/Sajit_Gurubacharya).
 
 
